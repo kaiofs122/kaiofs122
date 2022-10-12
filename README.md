@@ -1,6 +1,6 @@
 ## Oi, eu sou Kaio Fernandes
 
-### Bem-vindos ao meu perfil 🤙🏽
+### Bem-vindos ao meu perfil
 
 ### Minhas Redes: 🌎
 
