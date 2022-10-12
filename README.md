@@ -1,4 +1,4 @@
-## Oi, eu sou o Kaio Fernandes
+## Oi, eu sou Kaio Fernandes
 
 ### Bem-vindos ao meu perfil 🤙🏽
 
